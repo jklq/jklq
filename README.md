@@ -1,4 +1,4 @@
-# 🐐 I'm Jklq
+# 🐐 I'm jklq
 
 > Every time I commense a decision, I question myself: "What would a Nubian goat do?" This has single-handedly guided me through life in a sufficent manner. 
 
